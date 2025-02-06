@@ -2,7 +2,7 @@
 - 👀 I’m interested in 11m communication, web development, craeting stuff with html
 - 🌱 I’m quiet a newbee
 - 💞️ I’m looking to collaborate on web building, html maybe javascript, space weather, php, HAM, Iota, CB, DX 
-- 📫 How to reach me ...27.520 MHz USB 18dco01@gmail.com
+- 📫 How to reach me ...27.520 MHz USB 18dco01@gmail.com My WEB URL: https://dx-dco.org 
 - 😄 Pronouns: just ask me
 - ⚡ Fun fact: 11m
 
